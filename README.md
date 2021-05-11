@@ -1,7 +1,9 @@
+
 ## Oiê! Eu sou a Dannyeli Cristina 
 
-Amo todas as comidas feitas de plantas. 🌱
+🌱 Amo todas as comidas feitas de plantas
 ##
 
-Fã de carteirinha da Disney.
-##
+## Curiosidades:
+
+✨ Fã de carteirinha da Disney
